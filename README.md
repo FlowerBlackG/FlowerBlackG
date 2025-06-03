@@ -12,7 +12,7 @@
 
 ## 🐼 Reach Me
 
-📧 gongty \[AT\] tongji \[DOT\] edu \[DOT\] cn
+📧 gongty \[AT\] alumni \[DOT\] tongji \[DOT\] edu \[DOT\] cn
 
 ## 🥰 Follow Me
 
